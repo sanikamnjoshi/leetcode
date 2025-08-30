@@ -4,3 +4,4 @@
 18.08.2025. Cheating Beeminder, sorry, shall make up for it.
 19.08.2025. Cheating Beeminder, sorry, shall make up for it.
 21.08.2025. Cheating Beeminder, sorry, shall make up for it.
+30.08.2025. Cheating Beeminder, sorry, I don't have a Lernplan in place yet.
